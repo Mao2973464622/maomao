@@ -18,9 +18,7 @@
 - 更多项目正在开发中，敬请期待...
 
 ## 📫 联系方式
-- GitHub：[Mao2973464622](https://github.com/Mao2973464622)
-- 个人简介网址：[mao2973464622.github.io/maomao](https://mao2973464622.github.io/maomao/)
-
+- QQ2973464622(★≧▽^))★☆
 ---
 
 > 持续更新中... 欢迎 Star & Fork ✨
